@@ -2,6 +2,8 @@
 
 ## Soigner sa visibilité sur internet :
 
+![Digital Corner](affiche_782444.jpg)
+
 A la fin vous repartirez avec:
 
 - un brief pour créer votre site
